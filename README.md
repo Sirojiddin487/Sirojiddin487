@@ -1,4 +1,4 @@
-![Wallpaper](https://play.vsthemes.org/nova/1024576-1/28b/59328ba72496b2de5755156e45b72b8b.webp)
+![Wallpaper](https://play.vsthemes.org/nova/1024576-1/28b/59328ba72496b2de5755156e45b72b8b.gif)
 
 # Salom! 👋 Men Sirojiddin Abdukarimov
 
