@@ -1,3 +1,6 @@
+![Wallpaper](https://wallpaperwaves.com/wp-content/uploads/2025/10/ghost-of-tsushima-samurai-red-sky-wallpaperwaves-com.webp)
+
+
 # Salom! 👋 Men Sirojiddin Abdukarimov
 
 Men web dasturlash, sun’iy intellekt va zamonaviy texnologiyalar bilan shug‘ullanadigan dasturchiman.  
