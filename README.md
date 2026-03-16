@@ -1,4 +1,4 @@
-![Wallpaper](https://www.youtube.com/watch?v=8FFqFSOBHzU)
+[![Watch on YouTube](https://img.youtube.com/vi/8FFqFSOBHzU/0.jpg)](https://www.youtube.com/watch?v=8FFqFSOBHzU)
 
 # Salom! 👋 Men Sirojiddin Abdukarimov
 
