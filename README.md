@@ -1,5 +1,4 @@
-![Wallpaper]([https://wallpaperwaves.com/wp-content/uploads/2025/10/ghost-of-tsushima-samurai-red-sky-wallpaperwaves-com.webp](https://play.vsthemes.org/nova/1024576-1/28b/59328ba72496b2de5755156e45b72b8b.webp))
-
+![Wallpaper](https://play.vsthemes.org/nova/1024576-1/28b/59328ba72496b2de5755156e45b72b8b.webp)
 
 # Salom! 👋 Men Sirojiddin Abdukarimov
 
