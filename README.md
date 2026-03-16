@@ -44,7 +44,7 @@ O‘rganish, tajriba orttirish va foydali texnologik yechimlar yaratish mening a
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=Sirojiddin487&theme=dark&hide_border=false&include_all_commits=true&count_private=false&layout=compact)
 
 ---
-
+![Coding](https://media.giphy.com/media/3o7aD2saalBwwftBIY/giphy.gif)
 [![](https://visitcount.itsvg.in/api?id=Sirojiddin487&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
