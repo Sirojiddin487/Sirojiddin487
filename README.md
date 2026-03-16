@@ -6,7 +6,7 @@
 
 # 👋 Salom! Men **Sirojiddin Abdukarimov**
 
-### 🇺🇿 O'zbekistonlik 17 yoshli Python Developer
+### 🇺🇿 O'zbekistonlik 16 yoshli Python Developer
 
 
 [![GitHub followers](https://img.shields.io/github/followers/Sirojiddin487?style=social)](https://github.com/Sirojiddin487)
