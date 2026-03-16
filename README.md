@@ -1,5 +1,5 @@
 [![Cybersecurity Profile](https://cdn.phototourl.com/uploads/2026-03-16-b7e24636-8753-44e5-b284-2ac87d81065f.jpg)](https://github.com/Sirojiddin487)
-![Salom](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=28&pause=2000&color=00FF00&background=0D0D0D00&center=true&width=600&height=180&lines=Salom,+Sirojiddinman;Frontend+va+Backend+Dasturchi;Linux,+Python+va+Cybersecurity+bo'yicha+mukammal;Full-Stack+Web+Developer;Open+to+new+challenges+🚀)
+![Salom](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=28&pause=2000&color=00FF00&background=0D0D0D00&center=true&width=600&height=180&lines=Salom!,+👋 Men Sirojiddin Abdukarimov;Frontend+va+Backend+Dasturchi;Linux,+Python+va+Cybersecurity+bo'yicha+mukammal;Full-Stack+Web+Developer;Open+to+new+challenges+🚀)
 # Salom! 👋 Men Sirojiddin Abdukarimov
 
 Men web dasturlash, sun’iy intellekt va zamonaviy texnologiyalar bilan shug‘ullanadigan dasturchiman.  
