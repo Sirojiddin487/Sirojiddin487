@@ -1,4 +1,4 @@
-[!img(https://assets.grok.com/users/300f135b-162a-4d3a-9623-e504881e437c/generated/d3c5a0fe-df52-454c-86db-2507fb7157ca/image.jpg)]
+[![Cybersecurity Profile](https://assets.grok.com/users/300f135b-162a-4d3a-9623-e504881e437c/generated/d3c5a0fe-df52-454c-86db-2507fb7157ca/image.jpg)](https://github.com/Sirojiddin487)
 
 # Salom! 👋 Men Sirojiddin Abdukarimov
 
